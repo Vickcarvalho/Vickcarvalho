@@ -22,11 +22,5 @@ Eu gosto de ter diversos amigos, adoro
 fazer amizade, e eu tenho quatro
 melhores amigos nos quais eu confio as
 minhas diversas personalidades.
-Meu sonho é aprender 7 línguas e
-viajar para Nova York para cantar
-“Empire State Of Mind” da Alicia Keys.
-Antes de me casar eu quero morar com
-as minhas amigas e quando eu encontrar
-a pessoa certa eu quero me casar e ter dois filhos.
 *OBS.: se estiver bugado, é pq eu fiz no celular.
 **OBS.: eu não autorizo o uso dessas informações para nenhum fim, seja didático ou pessoal.
