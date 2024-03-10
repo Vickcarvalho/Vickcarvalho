@@ -22,5 +22,5 @@ Eu gosto de ter diversos amigos, adoro
 fazer amizade, e eu tenho quatro
 melhores amigos nos quais eu confio as
 minhas diversas personalidades.
-*OBS.: se estiver bugado, é pq eu fiz no celular.
-**OBS.: eu não autorizo o uso dessas informações para nenhum fim, seja didático ou pessoal.
+
+*OBS.: eu não autorizo o uso dessas informações para nenhum fim, seja didático ou pessoal.
